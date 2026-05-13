@@ -1,4 +1,4 @@
-
+Get ahead in forsaken with top forsaken Script, featuring unlimited stamina and silent aim. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
